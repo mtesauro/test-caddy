@@ -14,3 +14,9 @@ Plus we have a list of things to do in order
 1. Next
 1. After
 1. Final
+
+## Injuries of today
+
+*News Flash* 
+
+Josi's stomach got scratched up when she fell out of a tree.
